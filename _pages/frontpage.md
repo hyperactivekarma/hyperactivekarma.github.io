@@ -1,7 +1,7 @@
 ---
 permalink: /
 layout: home
-title: Defiende una idea.
+title: Defiende una idea
 list_title: My blog posts
 ---
 
