@@ -5,7 +5,7 @@ title: Defiende una idea.
 list_title: My blog posts
 ---
 
-<img src="./assets/imgs/screenshot.png" width="400px">
+<img src="./assets/imgs/barco.png" width="400px">
 
 [gh-site]: https://pages.github.com/
 [minima]: https://github.com/jekyll/minima/tree/2.5-stable
