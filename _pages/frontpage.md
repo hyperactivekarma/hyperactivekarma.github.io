@@ -1,7 +1,7 @@
 ---
 permalink: /
 layout: home
-title: Defiende una idea
+title: ¿Qué harías sin cadenas?
 list_title: My blog posts
 ---
 
