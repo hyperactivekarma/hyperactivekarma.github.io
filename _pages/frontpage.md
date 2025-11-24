@@ -1,7 +1,7 @@
 ---
 permalink: /
 layout: home
-title: Lo inesperado es bello
+title: ¿Qué haríamos sin cadenas?
 list_title:
 ---
 
