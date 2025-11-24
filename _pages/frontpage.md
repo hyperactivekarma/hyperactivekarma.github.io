@@ -1,7 +1,7 @@
 ---
 permalink: /
 layout: home
-title: ¿Qué haríamos sin cadenas?
+title:
 list_title:
 ---
 
