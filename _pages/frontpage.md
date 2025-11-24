@@ -1,7 +1,7 @@
 ---
 permalink: /
 layout: home
-title: ¿Qué harías sin cadenas?
+title: Lo inesperado es bello
 list_title: My blog posts
 ---
 
