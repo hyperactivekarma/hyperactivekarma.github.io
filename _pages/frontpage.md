@@ -2,7 +2,7 @@
 permalink: /
 layout: home
 title: Lo inesperado es bello
-list_title: My blog posts
+list_title:
 ---
 
 <img src="./assets/imgs/allegedlyme.png" width="400px">
