@@ -5,4 +5,4 @@ title: Sobre mi
 ---
 
 [es.wikipedia.org/wiki/Homo_sapiens](https://es.wikipedia.org/wiki/Homo_sapiens)<br>
-<small>\*ba dum tss\*</small>
+<span style="font-size:0.6em;">*ba dum tss*</span>
