@@ -4,5 +4,5 @@ layout: page
 title: Sobre mi
 ---
 
-[es.wikipedia.org/wiki/Homo_sapiens](https://es.wikipedia.org/wiki/Homo_sapiens)
-*ba dum tss*
+[es.wikipedia.org/wiki/Homo_sapiens](https://es.wikipedia.org/wiki/Homo_sapiens)<br>
+<strong>\*ba dum tss\*</strong>
