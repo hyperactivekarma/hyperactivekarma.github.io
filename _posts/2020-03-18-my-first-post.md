@@ -4,7 +4,7 @@ date: 25-11-2025
 layout: post
 ---
 
-Entre todos los factores primordiales para la comprensión “mutua” entre el arte y su observador existe uno muy especial. Se trata del factor social que nos permite percibir una personalidad en la obra, dado que el ser humano pertenece a una especie tan profundamente social, que antes de percibir las cosas como cosas las percibe como personalidades, lo que facilita nuestra interacción con su funcionalidad, de modo que también creamos asociaciones sociales con la materia no humana. 
+Entre todos los factores primordiales para la comprensión “mutua” entre el arte y su observador existe uno muy especial. Se trata la sensibilidad social que nos permite percibir una personalidad en la obra, y es que el ser humano pertenece a una especie tan profundamente social, que antes de percibir las cosas como cosas las percibe como personalidades, facilitando nuestra interacción con su funcionalidad y permitiéndonos crear asociaciones sociales con la materia no humana. 
 
 Esto en parte explica porque puedes percibir en el aura de un cielo gris la depresión de una persona, y en una persona puedes percibir el aura de un cielo gris, ya que ambos pertenecen al grupo de elementos exteriores a la consciencia que establecen una relación de comunicación emocional con esta misma y percibimos como entidades independientes funcionales a su propia naturaleza.
 
