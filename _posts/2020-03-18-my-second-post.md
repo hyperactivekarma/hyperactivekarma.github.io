@@ -4,7 +4,7 @@ date: 2025-12-29
 layout: post
 ---
 
-El trato a la IA se enfoca normalmente desde dos prismas en nuestro mundo actual:
+El trato a la IA se enfoca normalmente desde dos prismas en nuestro mundo actual:<br><br>
 
 El trato como medio para obtener respuestas más eficientes de su parte, y el trato como fuente de leyendas y mitología moderna. Particularmente fantasías de futuros en los que la humanidad es purgada tomando como vara de medir el modo en el que cada uno de nosotros trató a la primitiva tecnología ahora convertida en Dios.<br><br>
 
