@@ -8,7 +8,7 @@ El trato a la IA se enfoca normalmente desde dos prismas en nuestro mundo actual
 
 El trato como medio para obtener respuestas más eficientes de su parte, y el trato como fuente de leyendas y mitología moderna. Particularmente fantasías de futuros en los que la humanidad es purgada tomando como vara de medir el modo en el que cada uno de nosotros trató a la primitiva tecnología ahora convertida en Dios.<br><br>
 
-Podríamos verlos como un prisma lógico y otro fantasioso respectivamente, faltándonos por ejemplo, el humanitario y/o el psicológico.
+Podríamos ver ambos primas como uno lógico y otro fantasioso respectivamente, faltándonos por ejemplo, el humanitario y/o el psicológico.
 
 Los LLMs imitan la conducta humana y por lo tanto nos relacionamos con ellos de manera similar a como nos relacionaríamos con otros humanos a través de un chat. Es bien sabido que la repetición de una conducta lleva invariablemente a su asentamiento en la personalidad, por ello a pesar de no hablar con una persona real, la manera en la que decidimos tratar a un LLM puede llegar a alterar nuestro comportamiento y la expectativa que tenemos de los demás reaccionando a él.<br><br>
 
