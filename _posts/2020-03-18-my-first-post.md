@@ -4,7 +4,7 @@ date: 2025-11-25
 layout: post
 ---
 
-Entre todos los factores primordiales para la comprensión “mutua” entre el arte y su observador existe uno muy especial. Se trata de la sensibilidad social que nos permite percibir una personalidad en la obra. Y es que el ser humano pertenece a una especie tan profundamente social que antes de percibir las cosas como cosas las percibe como personalidades, facilitando nuestra interacción con su funcionalidad y permitiéndonos crear asociaciones sociales con la materia no humana.<br><br>
+El ser humano pertenece a una especie tan profundamente social que antes de percibir las cosas como cosas las percibe como personalidades, facilitando nuestra interacción con su funcionalidad y permitiéndonos crear asociaciones sociales con la materia no humana.<br><br>
 
 Esto en parte explica por qué puedes percibir en el aura de un cielo gris la depresión de una persona y en una persona puedes percibir el aura de un cielo gris, ya que ambos pertenecen al grupo de entidades exteriores a la consciencia que establecen una relación de comunicación emocional con la misma, percibiéndolas como independientes y funcionales a su propia naturaleza.<br><br>
 
