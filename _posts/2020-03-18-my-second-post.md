@@ -14,7 +14,7 @@ Los LLMs imitan la conducta humana, por lo tanto nos relacionamos con ellos de m
 
 Es bien sabido que la repetición de una conducta lleva invariablemente a su asentamiento en la personalidad, por ello a pesar de no hablar con una persona real, la manera en la que decidimos tratar a un LLM puede llegar a alterar nuestro comportamiento, y la expectativa que tenemos de las personas reaccionando a él.<br><br>
 
-Se puede argumentar que la mayoría de las personas o al menos, buena parte de ellas, evitará tratar a estos chatbots de manera “abusiva” puntual o continuadamente, sin embargo independiente a si somos buenas o malas personas, es el testeo de límites (Boundary testing) lo que determinará más allá de nuestra moral hasta que punto cruzaremos límites sociales, y como estableceremos dinámicas basados en la reacción de los demás frente a nuestra conducta.<br><br>
+Se puede argumentar que la mayoría de las personas o al menos, buena parte de ellas, evitará tratar a estos chatbots de manera “abusiva” puntual o continuadamente, sin embargo independiente a si somos buenas o malas personas, es el testeo de límites (Boundary testing) lo que determinará más allá de nuestra moral hasta que punto cruzaremos límites sociales, y como estableceremos dinámicas basadas en la reacción de los demás frente a nuestra conducta.<br><br>
 
 Si un chatbot es especialmente permisivo, ello tendría el potencial de remodelar parte de nuestra personalidad, y acercarnos al espectro antisocial de la conducta.<br><br>
 
