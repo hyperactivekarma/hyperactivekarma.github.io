@@ -4,7 +4,7 @@ date: 2026-01-16
 layout: post
 ---
 
-La fe, una herramienta para cumplir un deseo y un deseo esperando a ser cumplido, un lugar para reposar tu brazo, tus piernas, o el peso entero de tu existencia.<br><br>
+La fe, una herramienta para cumplir un deseo o un deseo esperando a ser cumplido, un lugar para reposar tu brazo, tus piernas, o el peso entero de tu existencia.<br><br>
 
 Para algunos es un sano apoyo para la inevitable incertidumbre, para otros el hilo que usan como candado esperando contener las fuerzas del caos detrás de sus portones de papel.<br><br>
 
