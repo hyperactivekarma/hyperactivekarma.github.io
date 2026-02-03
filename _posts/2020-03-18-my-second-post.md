@@ -1,8 +1,10 @@
 ---
-title: "Cómo tratamos a la IA"
+title: "Reflexiones sobre la IA"
 date: 2025-12-29
 layout: post
 ---
+
+### **Cómo tratamos a la IA**<br><br>
 
 El trato a la IA se enfoca normalmente desde dos prismas en nuestro mundo actual:<br><br>
 
@@ -19,3 +21,12 @@ Se puede argumentar que la mayoría de las personas o al menos, buena parte de e
 Si un chatbot es especialmente permisivo, ello tendría el potencial de remodelar parte de nuestra personalidad, y acercarnos al espectro antisocial de la conducta.<br><br>
 
 El hecho de que haya innumerables personas de variados trastornos mentales con acceso a esta tecnología de interacción social, pone sobre la mesa a las empresas la necesidad de establecer cuidadosos límites en el comportamiento de sus productos, y a nosotros el deber de tratar adecuadamente a la IA si aspiramos a seguir tratando adecuadamente a las personas que amamos.
+
+### **La IA como avance bélico**<br><br>
+
+Al final del día, la mayoría de las empresas en los países con la mejor tecnología y ciencia rinden cuentas al Estado, que busca acumular poder y mejorar su capacidad militar (uno de sus medios más importantes para obtener y salvaguardar ese poder).
+
+Crear una forma de inteligencia que supere nuestras capacidades de procesamiento y razonamiento por miles de veces (no estoy diciendo que no tengamos habilidades únicas) es una competencia que cualquiera de estos Estados quiere ganar antes que los demás.
+
+La fusión biotecnológica entre humanos y máquinas es una carrera que estos ejércitos simplemente consideran su deber principal, no un interés secundario.
+
