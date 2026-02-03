@@ -30,3 +30,14 @@ Crear una forma de inteligencia que supere nuestras capacidades de procesamiento
 
 La fusión biotecnológica entre humanos y máquinas es una carrera que estos ejércitos simplemente consideran su deber principal, no un interés secundario.
 
+### **Saltos exponenciales**<br><br>
+
+La estructura de aprendizaje en la que se basa la inteligencia artificial es, aunque sorprendente, también limitada, se trata de una estructura capaz de comprender patrones y replicar de manera convincente la capacidad humana de usar estos mismos para explorar racional y creativamente la realidad a nuestro alrededor. Sin embargo aún superándonos en numerosas tareas que requieren alta capacidad de procesamiento, carecen de algunas de las elegantes soluciones a las que la evolución llegó en términos de sofisticación cognitiva, por lo que la opinión de que la IA no es un aún un digno sucesor, ni lo será, no es descabellada.<br><br>
+
+Pero esta opinión olvida un par de detalles:
+
+Algunas IA, como GNoME y AlphaTensor, han logrado avances científicos que a los humanos nos habrían llevado décadas.
+
+Teniendo esto en cuenta, y asumiendo que se aplica a muchos campos científicos, no estamos empezando desde cero. Estamos usando la IA junto con la inteligencia humana para adelantarnos décadas en la realización de descubrimientos importantes que eventualmente podrían llevarnos a descubrir nuevas estructuras sobre las cuales basar nuevas inteligencias, superiores a las que tenemos actualmente.<br><br>
+
+Tenemos tecnología con el potencial de crear saltos exponenciales en el conocimiento.
