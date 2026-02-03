@@ -32,7 +32,7 @@ La fusión biotecnológica entre humanos y máquinas es una carrera que estos ej
 
 ### **Saltos exponenciales**
 
-La estructura de aprendizaje en la que se basa la inteligencia artificial es, aunque sorprendente, también limitada, se trata de una estructura capaz de comprender patrones y replicar de manera convincente la capacidad humana de usar estos mismos para explorar racional y creativamente la realidad a nuestro alrededor. 
+La estructura de aprendizaje en la que se basa la inteligencia artificial es, aunque sorprendente, también limitada, se trata de una estructura capaz de comprender patrones y replicar de manera convincente la capacidad humana de usar estos mismos para explorar racional y creativamente la realidad a nuestro alrededor.<br><br> 
 
 Sin embargo aún superándonos en numerosas tareas que requieren alta capacidad de procesamiento, carecen de algunas de las elegantes soluciones a las que la evolución llegó en términos de sofisticación cognitiva, por lo que la opinión de que la IA no es un aún un digno sucesor, ni lo será, no es descabellada.<br><br>
 
