@@ -20,7 +20,7 @@ Se puede argumentar que la mayoría de las personas o al menos, buena parte de e
 
 Si un chatbot es especialmente permisivo, ello tendría el potencial de remodelar parte de nuestra personalidad, y acercarnos al espectro antisocial de la conducta.<br><br>
 
-El hecho de que haya innumerables personas de variados trastornos mentales con acceso a esta tecnología de interacción social, pone sobre la mesa a las empresas la necesidad de establecer cuidadosos límites en el comportamiento de sus productos, y a nosotros el deber de tratar adecuadamente a la IA si aspiramos a seguir tratando adecuadamente a las personas que amamos.
+El hecho de que haya innumerables personas de variados trastornos mentales con acceso a esta tecnología de interacción social, pone sobre la mesa a las empresas la necesidad de establecer cuidadosos límites en el comportamiento de sus productos, y a nosotros el deber de tratar adecuadamente a la IA si aspiramos a seguir tratando adecuadamente a las personas que amamos.<br><br>
 
 ### **La IA como avance bélico**<br><br>
 
