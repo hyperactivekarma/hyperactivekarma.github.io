@@ -40,6 +40,6 @@ Pero esta opinión olvida un par de detalles:
 
 - Algunas IA, como GNoME y AlphaTensor, han logrado avances científicos que a los humanos nos habrían llevado décadas.
 
-- Teniendo esto en cuenta, y asumiendo que se aplica a muchos campos científicos, no estamos empezando desde cero. Estamos usando la IA junto con la inteligencia humana para adelantarnos décadas en la realización de descubrimientos importantes que eventualmente podrían llevarnos a descubrir nuevas estructuras sobre las cuales basar nuevas inteligencias, superiores a las que tenemos actualmente.<br><br>
+- Teniendo esto en cuenta, y asumiendo que se aplica a muchos campos científicos, no estamos empezando desde cero. Estamos usando la IA junto con la inteligencia humana para adelantarnos décadas en la realización de descubrimientos importantes, que eventualmente podrían llevarnos a descubrir nuevas estructuras sobre las cuales basar nuevas inteligencias, superiores a las que tenemos actualmente.<br><br>
 
 Tenemos tecnología con el potencial de crear saltos exponenciales en el conocimiento.
