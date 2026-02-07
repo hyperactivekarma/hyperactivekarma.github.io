@@ -8,4 +8,4 @@ La fe, una herramienta para cumplir un deseo o un deseo esperando a ser cumplido
 
 Para algunos es un sano apoyo para la inevitable incertidumbre, para otros el hilo que usan como candado esperando contener las fuerzas del caos detrás de sus portones de papel.<br><br>
 
-A unos pocos el material para erguirla siempre les resulta sobrado, y otros tantos ni sobrándoles el dinero tienen suficiente para negociarla más que a plazos.
+A unos pocos el material para erguirla siempre les resulta sobrado, y otros tantos ni sobrándoles el dinero tienen suficiente para negociar sus paredes más que a plazos.
