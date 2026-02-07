@@ -18,9 +18,9 @@ Es bien sabido que la repetición de una conducta lleva invariablemente a su ase
 
 Se puede argumentar que la mayoría de las personas o al menos, buena parte de ellas, evitará tratar a estos chatbots de manera “abusiva” puntual o continuadamente, sin embargo independiente a si somos buenas o malas personas, es el testeo de límites (Boundary testing) lo que determinará más allá de nuestra moral hasta que punto cruzaremos límites sociales, y como estableceremos dinámicas basadas en la reacción de los demás frente a nuestra conducta.<br><br>
 
-Si un chatbot es especialmente permisivo, ello tendría el potencial de remodelar parte de nuestra personalidad, y acercarnos al espectro antisocial de la conducta.<br><br>
+Si un chatbot es especialmente permisivo, ello tendría el potencial de remodelar parte de nuestra personalidad, acercándonos al espectro antisocial de la conducta.<br><br>
 
-El hecho de que haya innumerables personas de variados trastornos mentales con acceso a esta tecnología de interacción social, pone sobre la mesa a las empresas la necesidad de establecer cuidadosos límites en el comportamiento de sus productos, y a nosotros el deber de tratar adecuadamente a la IA si aspiramos a seguir tratando adecuadamente a las personas que amamos.<br><br>
+El hecho de que haya innumerables personas de variados trastornos mentales con acceso a esta tecnología de interacción social, pone sobre la mesa a las empresas la necesidad de establecer cuidadosos límites en el comportamiento de sus productos, y a nosotros el deber de tratar adecuadamente a la IA si aspiramos a seguir tratando de manera sana a nuestro entorno.<br><br>
 
 ### **La IA como avance bélico**
 
