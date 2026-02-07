@@ -1,5 +1,5 @@
 ---
-title:Implicaciones de la separación mental
+title: Implicaciones de la separación mental
 date: 2026-01-25
 layout: post
 ---
