@@ -15,7 +15,7 @@ Esta disonancia entre lo que se piensa y lo que finalmente se expresa, ha sido u
 
 Pero incluso en esas circunstancias la abstracción inicial no se traduce con exactitud satisfactoria, pues el artista considera a menudo que la idea es una forma con esencia independiente, y una vez la extrae y plasma a través de los utensilios que le presta su disciplina, cae en cuenta de que la idea se ha mezclado con trazos de su propia identidad. La obra es ahora una transmutación física entre la abstracción y el artista.<br><br>
 
-La mezcla de identidad e idea, es a menudo una razón de sufrimiento, pero también de alegría. Pues al igual que con la disonancia entre lo que se piensa y lo que se dice, el resultado puede dotar a la idea de los escalones faltantes que el alma humana necesitaba para transitar.
+La mezcla de identidad e idea, es a menudo una razón de sufrimiento, pero también de alegría. Pues al igual que con la disonancia entre lo que se piensa y lo que se dice, el resultado puede dotar a la idea de los escalones faltantes que el alma humana necesita para transitar.
 
 
 
