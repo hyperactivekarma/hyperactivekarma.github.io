@@ -3,7 +3,6 @@ title:Implicaciones de la separación mental
 date: 2026-01-25
 layout: post
 ---
-
 Existe una gran barrera vigente entre las personas con las que nos relacionamos y nosotros, la cual ignoramos tan bien como ignoramos que nuestra nariz se encuentra siempre en nuestro campo de visión. No podemos acceder a la mente de los demás, y esto no solo implica no poder leer sus pensamientos, implica no poder recibir ese pensamiento en su forma más pura.<br><br>
 
 Cuando alguien quiere compartir una idea, debe transmutarla en estímulos comprensibles y tratar de que esta se traduzca de manera coherente al lenguaje compartido. Muchas veces esto deforma o transforma el mensaje compartiendo algo distinto a lo esperado, generando malentendidos y la sensación de incomprensión entre individuos.<br><br>
