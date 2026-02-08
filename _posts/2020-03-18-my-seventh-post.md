@@ -13,7 +13,7 @@ Como seres conscientes, y altamente articulados, hemos conseguido llevar el conc
 
 Ya sea a través de la manipulación biológica, el apoyo mecánico, tecnológico, o farmacológico, nos hemos valido del sistema científico nacido de nuestro raciocinio para obtener mayor control operativo sobre el entorno y nuestra propia biología, algo que salta a la vista seguiremos haciendo.<br><br>
 
-La evolucion sigue actuando como un proceso independiente, pero a nivel operativo y estratégico nosotros nos hemos dado a la tarea de encarnar su rol, ya que somos capaces de ****razonar los procesos evolutivos que queremos conquistar, y también de generar estos avances en otros seres vivos alterando su biología, dando esto último innegable fuerza al argumento de que hemos tomado seriamente este rol.<br><br>
+La evolucion sigue actuando como un proceso independiente, pero a nivel operativo y estratégico nosotros nos hemos dado a la tarea de encarnar su rol, ya que somos capaces de razonar los procesos evolutivos que queremos conquistar, y también de generar estos avances en otros seres vivos alterando su biología, dando esto último innegable fuerza al argumento de que hemos tomado seriamente este rol.<br><br>
 
 Como encarnaciones de la evolución, y con parte de sus capacidades mejoradas, podemos darle un propósito consciente, razonarlo y defenderlo, llevándolo aún mas lejos que nuestro “antecesor” tradicional, el cual toma demasiado tiempo para generar grandes saltos en términos de ventajas biológicas.<br><br>
 
