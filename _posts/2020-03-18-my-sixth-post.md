@@ -1,6 +1,6 @@
 ---
 title: Implicaciones de la separación mental
-date: 2026-01-25
+date: 2026-02-07
 layout: post
 ---
 Existe una gran barrera vigente entre las personas con las que nos relacionamos y nosotros, la cual ignoramos tan bien como ignoramos que nuestra nariz se encuentra siempre en nuestro campo de visión. No podemos acceder a la mente de los demás, y esto no solo implica no poder leer sus pensamientos, implica no poder recibir ese pensamiento en su forma más pura.<br><br>
