@@ -1,5 +1,5 @@
 ---
-title: "Reflexiones sobre la IA"
+title: "Reflexiones sobre la IA (3)"
 date: 2025-12-29
 layout: post
 ---
