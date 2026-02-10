@@ -24,9 +24,8 @@ Puede entonces que los seres vivos racionales sean siempre, en cualquier planeta
 ---
 
 > **Observaciones sobre el texto**
-
 ---
-
+<br><br>
 El texto comienza hilando dos temas, la casualidad de que los productos de la evolución puedan sacar provecho tan conveniente entre ellos, y nuestra capacidad para aprovechar la ciencia de modo que podemos generar saltos evolutivos de manera independiente.<br><br>
 
 Sin embargo, al llegar a la conclusión (nosotros tomando control operativo de nuestro proceso evolutivo) esta no se siente como una mezcla orgánica entre los temas de apertura, quedando la conveniente capacidad de los seres vivos de poder aprovecharse unos a otros como una observación sin gran relevancia en los parrafos finales.<br><br>
