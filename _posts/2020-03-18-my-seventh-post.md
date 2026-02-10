@@ -41,7 +41,7 @@ Como segunda crítica, a pesar de tratar de argumentar nuestra capacidad operati
 
 Aunque se puede decir que los humanos somos seres igual de racionales que emocionales, y esa es la razón por la que cualquier acto no se puede desprender de los sentimientos y ambiciones, se siente como si el texto diera por hecho que al tomar nosotros el rol evolutivo, estuviera asegurado que esa es una decisión sin peligros ni consecuencias potecialmente catastróficas.<br><br>
 
-Tomar el rol evolutivo es a mi parecer, una misión con grandes recompensas pero también grandes castigos.<br><br>
+Tomar el rol evolutivo es a mi parecer, una misión con grandes recompensas pero también grandes castigos que se han de meditar conciencudamente, pues los cambios generados por nuestra ciencia en nuestra condición, no solo son físicos o mentales, también pueden ser ontológicos, o sea, cambiar radicalemente la manera en la que experimentamos la realidad, nuevas reglas, sentidos, concepciones y sistemas base de procesamiento de la realidad.<br><br>
 
 
 
