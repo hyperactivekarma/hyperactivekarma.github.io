@@ -23,7 +23,7 @@ Puede entonces que los seres vivos racionales sean siempre, en cualquier planeta
 
 ---
 
-## Puntos débiles y observaciones sobre el texto
+> **Observaciones sobre el texto**
 
 ---
 
