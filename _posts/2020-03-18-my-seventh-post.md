@@ -43,7 +43,7 @@ Aunque se puede decir que los humanos somos seres igual de racionales que emocio
 
 Tomar el rol evolutivo es a mi parecer, una misión con grandes recompensas pero también grandes castigos que se han de meditar conciencudamente, pues los cambios que genera la ciencia en nuestra condición, son no solo físicos o mentales, también pueden ser ontológicos, o sea, cambiar radicalemente la manera en la que experimentamos la realidad: nuevas reglas, sentidos, concepciones, y sistemas base de procesamiento de la realidad.<br><br>
 
-El potencial de generar brechas existenciales imcomprensibles, y potencialmente irreconciliables entre sectores humanos.
+El potencial de generar brechas existenciales potencialmente imcomprensibles, e irreconciliables entre sectores humanos.
 
 
 
