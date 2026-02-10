@@ -7,7 +7,7 @@ Al analizar el desarrollo de la vida a lo largo de los milenios hasta el momento
 
 Si bien la evolución no es hasta donde sabemos un fenómeno consciente, ha dado como resultado un escenario donde los animales pueden por ejemplo, curar sus enfermedades a través de frutos y plantas, las flores pueden modular la conducta de los insectos en beneficio de ambas partes, y el ejemplo más claro (y también más conveniente para esta argumentación) somos los humanos, que nos hemos proveído los que más de las características del resto de seres, inclusive sacando provecho de las bacterias, que aunque capaces de matarnos, también son una vía única para la creación de medicamentos.<br><br>
 
-¿A que quiero llegar con todo esto? Verás:<br><br>
+¿A que quiero llegar con todo esto?:<br><br>
 
 Como seres conscientes, y altamente articulados, hemos conseguido llevar el concepto de cooperación entre los productos de la naturaleza (animales, plantas y microorganismos) hasta su mayor récord sobre la tierra. Por otro lado nuestros progresos científicos, nos permiten generar avances evolutivos que nos dotan de nuevas capacidades y mejoras únicas, inicialmente insospechadas.<br><br>
 
@@ -20,3 +20,19 @@ Como encarnaciones de la evolución, y con parte de sus capacidades mejoradas, 
 Hemos tomado su rol, aprovechado sus frutos y los de la tierra, dispuestos a llevar la naturaleza a un nivel de sofisticación y supervivencia que por si sola no hubiese logrado.<br><br>
 
 Puede entonces que los seres vivos racionales sean siempre, en cualquier planeta, el sucesor inevitable del avance de la vida.<br><br>
+
+---
+
+## Puntos débiles y observaciones sobre el texto
+
+---
+
+El texto comienza hilando dos temas, la casualidad de que los productos de la evolución puedan sacar provecho tan conveniente entre ellos, y nuestra capacidad para aprovechar la ciencia de modo que podemos generar saltos evolutivos de manera independiente.<br><br>
+
+Sin embargo, al llegar a la conclusión (nosotros tomando control operativo de nuestro proceso evolutivo) esta no se siente como una mezcla orgánica entre los temas de apertura, quedando la conveniente capacidad de los seres vivos de poder aprovecharse unos a otros como una observación sin gran relevancia en los parrafos finales.<br><br>
+
+Esto se debe a que el presente texto es una reedición de un comentario escrito es una red social a modo de argumento, donde lo que se debatía inicialmente era si la naturaleza "consciente" o no, había reunido toda una serie de características en cada ser vivo para que al ser aprovechadas entre ellos, la naturaleza pudiese desarrollarse hacia un estadío superior.<br><br>
+
+O sea, la naturaleza no actuando de manera egoista en cada producto, sino generando una suerte de obra teatral donde cada participante era parte de un guión más grande. El debate terminó expandiéndose a si el producto más preparado para cumplir esta tarea de aprovechamiento estragégico es el humano, y por ello las partes finales del texto se centran tanto en justificar nuestra capacidad para ejercer este rol y los saltos lógicos pueden sentirse arbitratios e injustificados en la reedición.<br><br>
+
+
