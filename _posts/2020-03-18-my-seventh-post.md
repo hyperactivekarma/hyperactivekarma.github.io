@@ -39,7 +39,7 @@ No tengo duda de que los saltos lógicos pueden sentirse arbitratios e injustifi
 
 Como segunda crítica, a pesar de tratar de argumentar nuestra capacidad operativa para ese fin a un nivel estratégico (afirmaciones que se deben justificar a través de lógica fría y casi matemática), el texto se torna emocional y se convierte parcialmente en un discurso quasi-motivacional donde la ambición emocional toma mayor relevancia como argumento que las definiciones estrictas sobre nuestra condición y como estas justifican nuestro rol de avance independiente.<br><br>
 
-Aunque se puede decir que los humanos somos seres igual de racionales que emocionales y esa es la razón por la que cualquier acto no se puede desprender de los sentimientos y ambiciones, se siente como si el texto diera por hecho que al tomar nosotros el rol evolutivo, estuviera asegurado que esa es una decisión sin peligros ni consecuencias potecialmente catastróficas.<br><br>
+Aunque se puede decir que los humanos somos seres igual de racionales que emocionales, y esa es la razón por la que cualquier acto no se puede desprender de los sentimientos y ambiciones, se siente como si el texto diera por hecho que al tomar nosotros el rol evolutivo, estuviera asegurado que esa es una decisión sin peligros ni consecuencias potecialmente catastróficas.<br><br>
 
 Tomar el rol evolutivo es a mi parecer, una misión con grandes recompensas pero también grandes castigos.<br><br>
 
