@@ -14,6 +14,6 @@ Pero del mismo modo que no descartamos… o las leyes y teorías de la física t
 
 Esto cambia el paradigma resolutivo, no se trata ya de descartar de plano una de las dos piezas, sino de que contamos con las piezas necesarias, solo faltándonos la intermedia e intermediaria por ser descubierta a través de la reflexión. Abriendo la posibilidad de consagrar visiones y actuares a primer vistazo antagónicos entre sí, pudiendo acercarnos a compresiones más ricas del entorno y de nuestras propias estructuras mentales.<br><br>
 
-Claro que la resolución de disonancias cognitivas siempre se basa en la reorganización de datos (lo que incluye eliminarlos), pero a nivel antropológico nos suele parecer que lo correcto es reorganizar estos elementos mentales de manera más tajante, en lugar de buscar soluciones más elegantes.<br><br>
+Claro que la resolución de disonancias cognitivas siempre se basa en la reorganización de datos (lo que incluye eliminarlos), pero a nivel antropológico nos suele parecer que lo correcto es reorganizar estos elementos mentales de manera más tajante, en lugar de buscar soluciones más sutiles.<br><br>
 
 En ocasiones el conector no niega la posibilidad de prescindir de una de las piezas, pero puede lograr que la erradicación de una de ellas sea vuelva una transición más sabia y elegante.<br><br>
