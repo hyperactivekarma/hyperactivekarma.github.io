@@ -7,7 +7,7 @@ Al analizar el desarrollo de la vida a lo largo de los milenios hasta el momento
 
 Si bien la evolución no es hasta donde sabemos un fenómeno consciente, ha dado como resultado un escenario donde los animales pueden por ejemplo, curar sus enfermedades a través de frutos y plantas, las flores pueden modular la conducta de los insectos en beneficio de ambas partes, y el ejemplo más claro (y también más conveniente para esta argumentación) somos los humanos, que nos hemos proveído los que más de las características del resto de seres, inclusive sacando provecho de las bacterias, que aunque capaces de matarnos, también son una vía única para la creación de medicamentos.<br><br>
 
-¿A que quiero llegar con todo esto?:<br><br>
+¿A que quiero llegar con todo esto?<br><br>
 
 Como seres conscientes, y altamente articulados, hemos conseguido llevar el concepto de cooperación entre los productos de la naturaleza (animales, plantas y microorganismos) hasta su mayor récord sobre la tierra. Por otro lado nuestros progresos científicos, nos permiten generar avances evolutivos que nos dotan de nuevas capacidades y mejoras únicas, inicialmente insospechadas.<br><br>
 
