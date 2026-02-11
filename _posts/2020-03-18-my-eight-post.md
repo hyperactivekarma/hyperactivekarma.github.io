@@ -1,7 +1,7 @@
 ---
 title: "De la disonancia, a la convivencia cognitiva"
 date: 2026-02-11
-layout: post<br><br>
+layout: post
 ---
 
 Disonancia cognitiva: 
