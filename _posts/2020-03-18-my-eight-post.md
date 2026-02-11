@@ -8,7 +8,9 @@ Disonancia cognitiva:
 
 Refiere a la tensión, malestar o incomodidad que percibimos cuando nuestras creencias no están en armonía con nuestra conducta, o que percibimos cuando mantenemos dos ideas en apariencia contradictorias o incompatibles en nuestra mente.<br><br>
 
-La pulsión por deshacernos de la incomodidad creada por ideas y acciones que generan fricción entre sí, en lugar de encajar como dos piezas de un puzzle, es de los comportamientos más repetidos a lo largo de una vida. La disonancia cognitiva nos dice que algo está mal en nuestra organización interna de la realidad, y dado que somos tan antropológicamente tendenciosos a crear falsas dicotomías, o sea simplificar los conflictos a espectros de blanco o negro, normalmente comenzamos y terminamos con la sospecha de que uno de los dos elementos contrapuestos debe ser falso y el otro cierto. Uno debe sobrevivir, el otro no.<br><br>
+La pulsión por deshacernos de la incomodidad creada por ideas y acciones que generan fricción entre sí, en lugar de encajar como dos piezas de un puzzle, es de los comportamientos más repetidos a lo largo de una vida.<br><br>
+
+La disonancia cognitiva nos dice que algo está mal en nuestra organización interna de la realidad, y dado que somos tan antropológicamente tendenciosos a crear falsas dicotomías, o sea simplificar los conflictos a espectros de blanco o negro, normalmente comenzamos y terminamos con la sospecha de que uno de los dos elementos contrapuestos debe ser falso y el otro cierto. Uno debe sobrevivir, el otro no.<br><br>
 
 Pero del mismo modo que no descartamos… o las leyes y teorías de la física tradicional o, las de la física cuántica por no entender de manera precisa como se relacionan sus pesadas fricciones, sino que entendemos que a pesar de estas, ambas conviven armoniosamente en el mismo plano (la realidad), la disonancia cognitiva no es siempre una señal de que dos piezas de tu cosmovisión, compresión o actuar, son irremediablemente incompatibles. Si no una señal de que precisan de un conector aún desconocido a nivel intermedio.<br><br>
 
