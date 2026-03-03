@@ -8,7 +8,7 @@ La música está cargada de emociones, esto suena como una obviedad, de no estar
 
 Creía que esta carga en algunas canciones era irremediable, hasta que escuchando una en youtube leí por casualidad el comentario de un chico (probablemente bastante joven), que veía con extrañeza que tanta gente se arremolinara allí reviviendo sentimientos de ruptura y dolor.<br><br>
 
-Comentó algo como… “es curioso que haya tanta gente escuchando esto mientras recuerdan una relación rota, a mi edad aún no he tenido un desamor, creo por eso veo a esta canción simplemente como una canción brutal para hacer skate”.<br><br>
+Comentó algo como… “es curioso que haya tanta gente escuchando esto mientras recuerdan una relación rota, a mi edad aún no he tenido un desamor, creo que por eso veo a esta canción simplemente como una canción brutal para hacer skate”.<br><br>
 
 Parecerá una tontería, pero desde que lo leí, cuando noto que mis sentimientos están negándome la habilidad de disfrutar una pieza (ya sabeis), volviéndola innecesariamente punzante, me inspiro en él.<br><br>
 
