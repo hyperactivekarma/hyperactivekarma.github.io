@@ -14,5 +14,5 @@ Parecerá una tontería, pero desde que lo leí, cuando noto que mis sentimiento
 
 Me imagino siendo ese chico que surfea las calles sobre cuatro ruedas un día soleado, escuchando con sencillez música en sus cascos, y de pronto la canción ya no va sobre las cicatrices del pasado, en cambio, se transforma en una oda a la belleza purificada del presente, del futuro, y de mi propia persona.<br><br>
 
-Una oda a la belleza de recorrer la vida, “haciendo skate”.
+Una oda a la belleza de recorrer la vida “haciendo skate”.
 
