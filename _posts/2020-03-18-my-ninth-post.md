@@ -12,7 +12,7 @@ Comentó algo como… “es curioso que haya tanta gente escuchando esto mientra
 
 Parecerá una tontería, pero desde que lo leí, cuando noto que mis sentimientos están negándome la habilidad de disfrutar una pieza (ya sabeis), volviéndola innecesariamente punzante, me inspiro en él.<br><br>
 
-Me imagino siendo ese chico que surfea las calles en sus cuatro ruedas un día soleado, disfrutando música con sus cascos, y de pronto la canción ya no va sobre las cicatrices del pasado, en cambio, se transforma en una oda a la belleza purificada del presente, del futuro, y de mi propia persona.<br><br>
+Me imagino siendo ese chico que surfea las calles sobre cuatro ruedas un día soleado, escuchando con sencillez música en sus cascos, y de pronto la canción ya no va sobre las cicatrices del pasado, en cambio, se transforma en una oda a la belleza purificada del presente, del futuro, y de mi propia persona.<br><br>
 
 Una oda a la belleza de recorrer la vida, “haciendo skate”.
 
