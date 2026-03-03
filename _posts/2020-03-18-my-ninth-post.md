@@ -10,7 +10,7 @@ Creía que esta carga en algunas canciones era irremediable, hasta que escuchand
 
 Comentó algo como… “es curioso que haya tanta gente escuchando esto mientras recuerdan una relación rota, a mi edad aún no he tenido un desamor, creo por eso veo a esta canción simplemente como una canción brutal para hacer skate”.<br><br>
 
-Parecerá una tontería, pero desde que lo leí, cuando noto que mis sentimientos están negándome la habilidad de disfrutar una pieza, (ya sabeis) volviéndola innecesariamente punzante, me inspiro en él, me imagino siendo ese chico que surfea las calles en sus cuatro ruedas un día soleado, disfrutando música con sus cascos. De pronto la canción ya no va sobre las cicatrices del pasado, y se vuelve una oda a la belleza purificada del presente, del futuro, y de mi propia persona.<br><br>
+Parecerá una tontería, pero desde que lo leí, cuando noto que mis sentimientos están negándome la habilidad de disfrutar una pieza (ya sabeis), volviéndola innecesariamente punzante, me inspiro en él, me imagino siendo ese chico que surfea las calles en sus cuatro ruedas un día soleado, disfrutando música con sus cascos, y de pronto la canción ya no va sobre las cicatrices del pasado, en cambio, se transforma en una oda a la belleza purificada del presente, del futuro, y de mi propia persona.<br><br>
 
-Se vuelve una oda a la belleza de recorrer la vida, “haciendo skate”.
+Una oda a la belleza de recorrer la vida, “haciendo skate”.
 
