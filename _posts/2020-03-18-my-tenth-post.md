@@ -16,7 +16,7 @@ En cada sesión de escritura, un yo camino a morir (pero que se niega a ahogarse
 
 Un juego donde se anhela sobrevivir es retorcido pero necesario. No gana el más fuerte, sino el más astuto, aquel lo suficientemente persuasivo para hipnotizar al otro con su forma, necesario para reencarnarme en un cuerpo que ahora compartiré con él, al menos hasta que el pozo nos arrastre de nuevo.<br><br>
 
-Pero resulta que ninguno de los dos querrá ahogarse.<br><br> 
+Pero resulta que ninguno de los dos está dispuesto a ahogarse.<br><br> 
 
 Haremos que alguien se acerque al pozo.
 
