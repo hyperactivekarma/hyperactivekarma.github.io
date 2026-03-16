@@ -20,5 +20,5 @@ Necesario para reencarnarme en un cuerpo que ahora compartiré con él, al menos
 
 Pero resulta, que ninguno está dispuesto a ahogarse.<br><br> 
 
-Haremos que él se acerque al pozo.
+Haremos que él se acerque al pozo.<br><br>
 
