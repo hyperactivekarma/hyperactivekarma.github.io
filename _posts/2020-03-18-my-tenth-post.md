@@ -14,7 +14,7 @@ Es imposible que sea ninguno. En cada sesión de escritura, un yo camino a morir
 
 Un juego donde se anhela sobrevivir, es retorcido pero necesario. No gana el más fuerte, sino el más astuto, aquel lo suficientemente persuasivo para hipnotizar al otro con su forma, y reencarnarse en un cuerpo que ahora compartiré con él, al menos hasta que nuevamente el pozo nos arrastre.<br><br>
 
-Pero resulta, que ninguno de los dos querrá ahogarse.<br><br> 
+Pero resulta que ninguno de los dos querrá ahogarse.<br><br> 
 
 Hay que hacer que alguien se acerque al pozo.<br><br>
 
