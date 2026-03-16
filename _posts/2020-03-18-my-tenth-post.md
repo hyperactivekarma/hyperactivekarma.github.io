@@ -1,6 +1,6 @@
 ---
 title: "Esto no es lo que pienso…"
-date: 2026-02-11
+date: 2026-03-16
 layout: post
 ---
 
