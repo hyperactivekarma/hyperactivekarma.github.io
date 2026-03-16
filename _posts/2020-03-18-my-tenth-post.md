@@ -18,5 +18,5 @@ Un juego donde se anhela sobrevivir es retorcido pero necesario. No gana el más
 
 Pero resulta que ninguno de los dos querrá ahogarse.<br><br> 
 
-Haremos que alguien se acerque al pozo.<br><br>
+Haremos que alguien se acerque al pozo.
 
