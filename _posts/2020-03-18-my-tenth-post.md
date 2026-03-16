@@ -12,7 +12,7 @@ Parte con parecidos y diferencias, parte que suelta en mis oídos y en los tuyos
 
 Es imposible que sea ninguno. En cada sesión de escritura, un yo camino a morir (pero que se niega a ahogarse) consigue sacar su brazo del pozo. Y en cada sesión de lectura, al asomarme por él, aprovecha para clavar sus uñas en esta pierna que deja de ser mía, y en la mente desnuda, conmovida.<br><br>
 
-Un juego donde se anhela sobrevivir, retorcido pero necesario. No gana el más fuerte, sino el más astuto, aquel lo suficientemente persuasivo para hipnotizar al otro con su forma, y reencarnarse en un cuerpo que ahora compartiré con él, al menos hasta que el pozo nos arrastre.<br><br>
+Un juego donde se anhela sobrevivir, es retorcido pero necesario. No gana el más fuerte, sino el más astuto, aquel lo suficientemente persuasivo para hipnotizar al otro con su forma, y reencarnarse en un cuerpo que ahora compartiré con él, al menos hasta que el pozo nos arrastre.<br><br>
 
 Pero resulta que hoy, ninguno de los dos quiere ahogarse.<br><br> 
 
