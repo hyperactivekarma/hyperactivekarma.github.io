@@ -12,7 +12,7 @@ Parte con parecidos y diferencias, parte que suelta en mis oídos y en los tuyos
 
 Es imposible que sea ninguno.<br><br> 
 
-En cada sesión de escritura, un yo camino a morir (pero que se niega a ahogarse) consigue sacar su brazo del pozo. Y en cada sesión de lectura, al asomarme por él, aprovecha para clavar sus uñas en esta pierna, y en la mente que deja de ser mía.<br><br>
+En cada sesión de escritura, un yo camino a morir (pero que se niega a ahogarse) consigue sacar su brazo del pozo. Y en cada sesión de lectura, al asomarme por él, aprovecha para clavar sus uñas en esta carne que deja de ser mía.<br><br>
 
 Un juego donde se anhela sobrevivir, es retorcido pero necesario. No gana el más fuerte, sino el más astuto, aquel lo suficientemente persuasivo para hipnotizar al otro con su forma, y reencarnarse en un cuerpo que ahora compartiré con él, al menos hasta que nuevamente el pozo nos arrastre.<br><br>
 
